@@ -56,4 +56,4 @@ Podemos atualizar nossa Política de Privacidade ocasionalmente para refletir me
 
 9. CONTATO
 
-Se você tiver alguma dúvida sobre esta política, entre em contato através do e-mail de suporte disponível na página da loja de aplicativos.
+Se você tiver alguma dúvida sobre esta política, entre em contato através do e-mail de suporte dev.motoka@gmail.com.
